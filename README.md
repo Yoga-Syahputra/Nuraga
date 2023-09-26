@@ -1,1 +1,1 @@
-# Nuraga 🤖 - Guiding You to Self-Improvemet and Better Life Quality
+# Nuraga 🤖 - Guiding You to Self-Improvement and Better Life Quality
